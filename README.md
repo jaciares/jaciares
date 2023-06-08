@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jaciares
-- 👀 I’m interested in body building and FFXIV =)
+- 👀 I’m interested in chain smoking cold brew for my life.
 - 🌱 I’m currently learning Java to prepare for my algorithm class at university.
 - 💞️ I’m looking to collaborate on... nothing at this time. :/
 - 📫 How to reach me: DM me here please.
